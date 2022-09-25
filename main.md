@@ -3,4 +3,4 @@
 
 >>Цитата
 
-![https://fotovideoforum.ru/gallery/image.php?album_id=333&image_id=5597]("Водопад")
+![https://on-desktop.com/wps/2021Nature___Waterfalls_Nice_view_of_Iguazu_Falls_152713_.jpg]("Водопад")
