@@ -8,3 +8,4 @@
 GJXTVE YT LJ,FDKZTNCZ
 
 Все ли получилось?
+да
